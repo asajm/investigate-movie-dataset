@@ -1,5 +1,3 @@
-<a id='conclusions'></a>
-## Conclusions
 
 If you consider to invest in movies and looking for profit. these are some advise:-
 
